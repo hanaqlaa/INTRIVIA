@@ -8,7 +8,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 Intrivia memberikan banyak insight yang sangat bermanfaat dalam menjalani perkuliahan. 
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 19 Sejauh Ini 
 cluster 19 seru.
 
 ## Harapan Kuliah 
